@@ -30,7 +30,7 @@ Step 7 : Monitor the bot's performance and make adjustments as needed or contact
 Want premium bots or 1-on-1 guidance? Reach out:
 
 - 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
-- 💬 Telegram: [@Deriv_Bot_Pro](https://t.me/Deriv_Bot_Pro)  
+- 💬 Telegram: [@Deriv_Pro](https://t.me/Deriv_Pro)  
 - 📧 Email: derivkingnato@gmail.com  
 
 ---
@@ -42,7 +42,7 @@ There are over 40+ premium bots and strategies available  plus lifetime access t
 - Combo deal includes all bots + future updates or buy bots indivi
 - Contact me for pricing:
 - 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
-- 💬 Telegram: [@Deriv_Bot_Pro](https://t.me/Deriv_Bot_Pro)  
+- 💬 Telegram: [@Deriv_Pro](https://t.me/Deriv_Pro)  
 - 📧 Email: derivkingnato@gmail.com  
 
 ---
@@ -61,7 +61,7 @@ There are over 40+ premium bots and strategies available  plus lifetime access t
 
 Step into a private trading community built for precision, profit, and elite strategy sharing.
 
-**𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌:** [https://t.me/Deriv_Bots_Trading](https://t.me/Deriv_Bots_Trading)  
+**𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌:** [https://t.me/Deriv_Pro_Bots](https://t.me/Deriv_Pro_Bots)  
 **𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏:** [https://chat.whatsapp.com/Fgh6GRJbmWV3MdCnnsFr38](https://chat.whatsapp.com/Fgh6GRJbmWV3MdCnnsFr38)
 
 > Access premium bots, live strategy drops, and mentorship from top-tier traders.  
