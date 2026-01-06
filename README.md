@@ -90,7 +90,7 @@ This project is licensed under the MIT License.
 If you’ve benefited from these bots, consider supporting by donating, contact me below for donation details:
 
 - 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
-- 💬 Telegram: [@Deriv_Bot_Pro](https://t.me/Deriv_Bot_Pro)  
+- 💬 Telegram: [@Deriv_Pro](https://t.me/Deriv_Pro)  
 - 📧 Email: derivkingnato@gmail.com
 
 
