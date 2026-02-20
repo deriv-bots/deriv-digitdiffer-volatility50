@@ -2,7 +2,7 @@
 
 # How to Start  :
 
-Step 1 : Go to https://deriv.com and go to your profile section under Deriv API \
+Step 1 : Go to [https://deriv.com](https://track.deriv.com/_tyV1h4aN9QKFfUyb_9NCN2Nd7ZgqdRLk/1/) and go to your profile section under Deriv API \
 Step 2 : Create a new API key with trade option and copy it \
 Step 3 : Download Node.js ( https://nodejs.org/en/download/ ) and after installing launch windows powershell \
 Step 4 : Use this code to set up the bot; \
@@ -62,7 +62,7 @@ There are over 40+ premium bots and strategies available  plus lifetime access t
 Step into a private trading community built for precision, profit, and elite strategy sharing.
 
 **𝐓𝐄𝐋𝐄𝐆𝐑𝐀𝐌:** [https://t.me/Deriv_Pro_Bots](https://t.me/Deriv_Pro_Bots)  
-**𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏:** [https://chat.whatsapp.com/Fgh6GRJbmWV3MdCnnsFr38](https://chat.whatsapp.com/Fgh6GRJbmWV3MdCnnsFr38)
+**𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏:** [https://chat.whatsapp.com/GiuNH6QDVFrD7mfl8NQ7yk](https://chat.whatsapp.com/GiuNH6QDVFrD7mfl8NQ7yk)
 
 > Access premium bots, live strategy drops, and mentorship from top-tier traders.  
 > This isn’t just a group, it’s your edge.
