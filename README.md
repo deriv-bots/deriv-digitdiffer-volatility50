@@ -31,7 +31,7 @@ Want premium bots or 1-on-1 guidance? Reach out:
 
 - 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
 - 💬 Telegram: [@Deriv_Pro](https://t.me/Deriv_Pro)  
-- 📧 Email: derivkingnato@gmail.com  
+- 📧 Email: monarchtrades@outlook.com 
 
 ---
 
@@ -43,7 +43,7 @@ There are over 40+ premium bots and strategies available  plus lifetime access t
 - Contact me for pricing:
 - 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
 - 💬 Telegram: [@Deriv_Pro](https://t.me/Deriv_Pro)  
-- 📧 Email: derivkingnato@gmail.com  
+- 📧 Email: monarchtrades@outlook.com 
 
 ---
 
@@ -91,6 +91,6 @@ If you’ve benefited from these bots, consider supporting by donating, contact 
 
 - 📱 WhatsApp: [Chat Now](https://wa.me/254747204803)  
 - 💬 Telegram: [@Deriv_Pro](https://t.me/Deriv_Pro)  
-- 📧 Email: derivkingnato@gmail.com
+- 📧 Email: monarchtrades@outlook.com
 
 
